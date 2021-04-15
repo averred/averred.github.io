@@ -1,2 +1,2 @@
-# averred.github.io
-GitHub Pages Website
+# www.averred.net
+Coming soon!
